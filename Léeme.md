@@ -1,0 +1,1 @@
+Una receta fácil y sencilla para preparar las deliciosas arepas en casa. Las arepas son tradicionales de Venezuela y Colombia, se preparan con harina de maíz precocida, agua, sal, y un poquito de aceite. Se sirven con una variedad de diferentes rellenos.
